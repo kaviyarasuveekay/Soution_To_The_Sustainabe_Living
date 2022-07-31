@@ -1,1 +1,2 @@
 # Soution_To_The_Sustainabe_Living
+This idea is an initiative dedicated to small footprint design and living. Featuring professional, smart and creative designers and their tiny / micro apartments, studios and self-contained projects. Through smart design and creative use of space, we can transform the way we live and interact with our growing cities. Tackling urban overcrowding issues globally whilst improving the quality of life. This idea provides a window into this world for inspiration and leadership in Small Footprint Living.
